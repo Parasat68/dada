@@ -1,1 +1,1 @@
-# dada/index
+# dada/index/скрип/Satbayev university/форма/фрейм
