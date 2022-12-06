@@ -1,1 +1,1 @@
-# dada/index/скрип/Satbayev university/форма/фрейм/сурет/skrip/сатбаев
+# dada/index/скрип/Satbayev university/форма/фрейм/сурет/skrip/сатбаев/космос/вечеринка
